@@ -1,0 +1,1 @@
+# anshin-care-assets
